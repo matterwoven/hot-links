@@ -18,6 +18,8 @@ An easy recipe to make delicious Potato Puncakes, Draniki!
 ## [Homemade Crispy Hash Browns](https://www.allrecipes.com/recipe/57783/emilys-famous-hash-browns/)
 [Archived Link](https://web.archive.org/web/20251001224719/https://www.allrecipes.com/recipe/57783/emilys-famous-hash-browns/)
 
+Quick and easy Hash Brown recipe that takes 40 minutes to make!
+
 ## [Mississippi Mud Brownies](https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 [Archived Link](https://web.archive.org/web/20240227143637/https://tastesbetterfromscratch.com/mississippi-mud-brownies/)
 
